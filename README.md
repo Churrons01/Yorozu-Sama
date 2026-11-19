@@ -1,3 +1,5 @@
+yaya im so smart i can code😁😁
+
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31shvimuxq6ywic66fpvb4mr42dm&redirect=true">
